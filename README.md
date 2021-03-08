@@ -1,1 +1,1 @@
-# nchu.github.io
+# nchu.edu
